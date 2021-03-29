@@ -1,1 +1,0 @@
-# hachi-ar-test4v4olf
